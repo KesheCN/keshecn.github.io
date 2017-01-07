@@ -1,2 +1,1 @@
-凯史-中国
-http://keshecn.org
+欢迎来到 凯史-中国（keshecn.org)，网站尚在建设中，请等待。
